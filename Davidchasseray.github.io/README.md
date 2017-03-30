@@ -1,2 +1,0 @@
-# Davidchasseray.github.io
-PowerGuysFEAE
